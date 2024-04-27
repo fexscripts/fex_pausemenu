@@ -1,3 +1,3 @@
-# Fex Scripts brings you a new FiveM Script that allows you to change the basic headings prescribed in the original GTA
+# Fex Scripts brings you new and modern fivem scripts that you will love and drive you completely crazy, and we're not even that expensive
 
 
